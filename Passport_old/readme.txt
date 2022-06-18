@@ -1,0 +1,1 @@
+Nice passport if you are American psycho Patrick Bateman, who want to travel in Israel
